@@ -1,5 +1,5 @@
 ## 1. Idiom Solitaire 
-![](https://play-lh.googleusercontent.com/0zb5kEUD6BJiOtzIW92gEH8qmmJAf1BwDIwAgo6LMDOzHxviJxQji1RjhUVSgxBYHA=w1920-h880-rw
+![](https://play-lh.googleusercontent.com/0zb5kEUD6BJiOtzIW92gEH8qmmJAf1BwDIwAgo6LMDOzHxviJxQji1RjhUVSgxBYHA=w1920-h880-rw =250x
 )
 ![](https://play-lh.googleusercontent.com/lXKrcyuayg-RBZtz78OlZIE_eKRejaeE_8XjLJbtM2w1J6J5uah_uyoDeZONyzJgzA=w1920-h880-rw
 )
